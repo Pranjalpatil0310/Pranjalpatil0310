@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pranjalpatil0310
 - 📫 How to reach me mail me at pranjalpatil0310@gmail.com
-- 😄 Pronouns: He/Him
+
 
 
 <!---
